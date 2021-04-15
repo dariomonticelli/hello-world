@@ -1,4 +1,1 @@
-Dio porco
-e porca madonna
-njn
-safa
+Ciao a tutti!
